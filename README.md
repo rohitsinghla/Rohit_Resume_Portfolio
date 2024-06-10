@@ -1,1 +1,1 @@
-i have developed my Resume Portfolio they are full responsive portfolio
+i have developed my Resume Website Portfolio they are full responsive portfolio
